@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with stealth Script for jujutsu shenanigans, the #1 Script. Includes invisibility and esp for
 
 
 
